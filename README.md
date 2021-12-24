@@ -1,2 +1,2 @@
 # Coursework-for-TU
-Kostadinov got in my way, he thought it was enough to defeat me! Guess who is winning now ??
+I spent 5-7 nights on this work and i feel like i could have done a lot better
